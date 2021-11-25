@@ -14,6 +14,7 @@
 
 ## "Acid Graphic" 
 This design approach is related to the visual experience provided by psychedelic materials, which are frequently displayed in repeated geometric patterns or high-saturation colours. This acidic aesthetics conveyed a societal proposal of "free love" and featured a form of extreme hedonism that is nearly obsolete in today's society in the last several decades.
+
 ![Es27l9aVEAYoKkH](https://user-images.githubusercontent.com/94842504/143131733-86ec04a5-1d3d-4859-acfd-d8dd63e519b0.jpg)
 ![aespa-savage-Cover-Art](https://user-images.githubusercontent.com/94842504/143131751-7179d47d-72ec-4ff8-954a-d67f7155855f.jpg)
 Aespa album cover
