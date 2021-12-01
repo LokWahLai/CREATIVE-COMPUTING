@@ -1,4 +1,4 @@
-# </The Modern Psychedelia-"Acid Graphics">
+# </The Modern Psychedelia-"4c1d €r@Phic$">
 
 #### Acid Graphics is a late-twentieth-century style. It is distinguished by brutalist typefaces, forms, and a psychedelic imagination. It draws inspiration from the Y2K style, cyberdelia, and 90's rave fliers.
 ![WareCompTwit](https://user-images.githubusercontent.com/94842504/143116567-3dfcb4e4-07d2-485a-a2ea-82a74f9759be.png)
